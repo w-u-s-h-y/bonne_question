@@ -1,2 +1,2 @@
 # bonne_question
-toujours aussi pertinant 
+c'est la base de la vie, faut que je m'aime : teddybear
