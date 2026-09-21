@@ -1,2 +1,2 @@
 # bonne_question
-c'est la base de la vie, faut que je m'aime : teddybear
+en faite c pas vraiment ca les parole
